@@ -1,1 +1,1 @@
-## We Learning 🐿️
+## We Learn 🐿️
